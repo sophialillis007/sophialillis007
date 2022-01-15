@@ -5,11 +5,11 @@
 
 
 
-- 💬 Ask me about **Html,CSS**
+- 💬 Ask me about:- **Html,CSS**
 
-- 📫 How to reach me **sophialillis1329@gmail.com**
+- 📫 How to reach me:- **sophialillis1329@gmail.com**
 
-- ⚡ Fun fact **I spend almost 5 hours to listening songs**
+- ⚡ Fun fact:- **I spend almost 5 hours to listening songs**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
